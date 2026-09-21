@@ -1,3 +1,3 @@
 Have fun!
 <3
-discord -> notmaja._
+https://itzmaja.pl/
